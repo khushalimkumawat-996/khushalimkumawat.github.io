@@ -67,7 +67,7 @@ I believe in learning by doing. Each project I build helps me improve my underst
 
 ## 📬 Connect With Me
 
-* LinkedIn:linkedin.com/in/khushali-kumawat
+* LinkedIn: linkedin.com/in/khushali-kumawat
 ---
 
 ⭐ If you like my work, feel free to explore my projects and share your feedback!
